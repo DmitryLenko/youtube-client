@@ -1,1 +1,0 @@
-# dmitrylenko-2018Q3
